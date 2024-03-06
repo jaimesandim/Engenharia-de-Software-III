@@ -10,4 +10,6 @@
 
 > "A vingança nunca é plena, mata a alma e envenena" by Madruga, sr
 
-> "Ela deve estar dando em cima da professora X" 
+> "Ela deve estar dando em cima da professora X"
+
+> "Esse ai já n dá", Igor Almeida sobre pai da Hannah Montana
