@@ -13,3 +13,7 @@
 > "Ela deve estar dando em cima da professora X"
 
 > "Esse ai já n dá", Igor Almeida sobre pai da Hannah Montana
+
+> AGORA COM OS NOMES CORRETOS
+
+> OIIIIIIIIIIIIIIIII
