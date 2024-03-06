@@ -9,3 +9,5 @@
 > "Um pequeno passo para o homem, mas um gigantesco salto para a humanidade"
 
 > "A vingança nunca é plena, mata a alma e envenena" by Madruga, sr
+
+> "Ela deve estar dando em cima da professora X" 
